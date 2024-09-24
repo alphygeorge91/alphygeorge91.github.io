@@ -1,1 +1,1 @@
-# alphygeorge.github.io
+# alphy.github.io
